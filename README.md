@@ -1,2 +1,2 @@
-# Jay-Shah
-About Me
+# About Me
+Hi There! 
